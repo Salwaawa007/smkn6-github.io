@@ -1,0 +1,1 @@
+# smkn6-github.io
